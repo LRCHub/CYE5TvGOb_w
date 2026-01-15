@@ -1,4 +1,4 @@
-# Hatsuboshi Gakuen, Temari Tsukimura, & minami – Luna say maybe
+# 初星学園、月村手毬、minami – Luna say maybe
 
 > **歌詞登録ステータス：同期歌詞あり**
 
